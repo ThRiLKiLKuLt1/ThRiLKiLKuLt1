@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ThRiLKiLKuLt1
 - 👀 I’m interested in ...hacking 
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ...life
+- 💞️ I’m looking to collaborate on ...vengeance 
 - 📫 How to reach me ...don't 
 - 😄 Pronouns: ...she 
 - ⚡ Fun fact: ...I'm not as nice as I look
